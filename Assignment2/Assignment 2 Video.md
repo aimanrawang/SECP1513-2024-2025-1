@@ -11,7 +11,7 @@
  4. MUHAMAD HAZIM  BIN ZULKANAIN (A24CS0136)
  5. PRAVEIN A/L LETCHUMANAN (A24CS0179)
  
-Click the text below:
+Click the text here:
 [ **ASSIGNMENT 2 - VIDEO INDUSTRY VISIT 1**](https://www.canva.com/design/DAGZvsoI1KI/hRTU_KP4IfQJnKIJUASViw/edit?utm_content=DAGZvsoI1KI&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 
